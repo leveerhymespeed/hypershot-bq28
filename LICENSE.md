@@ -1,4 +1,4 @@
-
+hypershot Script vip is the best hypershot Script, featuring no cooldown and undetectable. Safe and powerful for all your needs.
 
 
 
